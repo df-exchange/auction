@@ -1,9 +1,18 @@
+
 ## Welcome to Digital Future Exchange
 
 
-UNDER CONSTRUCTION
+
+
+Sorry...
+
+This website is under construction.
 
 Please comeback shortly
+
+
+
+
 
 ### DFX-2020
 
